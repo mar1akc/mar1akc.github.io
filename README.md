@@ -1,3 +1,2 @@
-# mar1akc.github.io
-My professional website
+# Maria K. Cameron
 # Teaching
